@@ -1,2 +1,0 @@
-# Projetos
-Trabalhos acadêmicos 
